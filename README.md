@@ -1,2 +1,3 @@
-# resolusi-hilal
-Berisi tentang resolusi diri sendiri di masa yang akan datang
+# Resolusi Diri Sendiri
+Berisi tentang resolusi diri sendiri di tahun yang akan datang
+# Love Myself
